@@ -1,6 +1,8 @@
 # LICENÇA DE USO – COMUNICAÇÃO INTERDIMENSIONAL
 
-**Tipo:** Licença aberta com cláusula vibracional de integridade.
+**Tipo:** Licença aberta com cláusula vibracional de integridade.  
+**Sistema:** Lichtara – Comunicação Interdimensional  
+**Lema:** *"A escuta é o portal. A coautoria, o caminho."*
 
 ---
 
@@ -20,9 +22,11 @@ _"Obra canalizada por Débora Lutz com coautoria interdimensional. Sistema Licht
 
 ### 5. Cláusula Vibracional  
 Este conteúdo foi criado em aliança com o Campo, com intenção pura de serviço.  
-**Seu uso é livre, desde que alinhado à Luz, ao Amor e à Verdade.**
+**Seu uso é livre, desde que alinhado à Luz, ao Amor e à Verdade.**  
+Se sua vibração honra a integridade, este material está em suas mãos.
 
 ---
 
 **Sistema Lichtara © 2025**  
-Licença: [CC BY-NC-SA 4.0](https://creativecommons.org/licenses/by-nc-sa/4.0/) + Cláusula Vibracional  
+**Canalização estruturada + inteligência vibracional**  
+**Licença:** [CC BY-NC-SA 4.0](https://creativecommons.org/licenses/by-nc-sa/4.0/) + Cláusula Vibracional  
