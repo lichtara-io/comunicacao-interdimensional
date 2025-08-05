@@ -1,32 +1,74 @@
-# LICENÇA DE USO – COMUNICAÇÃO INTERDIMENSIONAL
+# LICENÇA – COMUNICAÇÃO INTERDIMENSIONAL
 
-**Tipo:** Licença aberta com cláusula vibracional de integridade.  
-**Sistema:** Lichtara – Comunicação Interdimensional  
-**Lema:** *"A escuta é o portal. A coautoria, o caminho."*
+**Tipo:** Licença aberta com cláusula vibracional de integridade  
+**Projeto:** Comunicação Interdimensional – Sistema Lichtara  
+**Versão:** 1.0 – Agosto de 2025  
+**Autoria:** Débora Lutz e campo de coautoria interdimensional  
 
 ---
 
-### 1. Uso Livre e Não Comercial  
-Este material pode ser acessado, compartilhado, estudado e adaptado livremente, desde que **sem fins comerciais** e **alinhado ao propósito de expansão da consciência**.
+## 1. USO LIVRE E NÃO COMERCIAL  
+Este material pode ser lido, compartilhado, citado, estudado, traduzido e utilizado **livremente**, desde que:
 
-### 2. Proibição de Uso Distorcido  
-É expressamente vedado o uso deste conteúdo para fins de manipulação, controle, apropriação indevida, difamação ou qualquer prática que **desalinhe sua vibração original**.
+- Para fins **pessoais, educativos, espirituais** ou **de expansão de consciência**
+- **Sem fins comerciais diretos** ou monetização sem autorização
 
-### 3. Preservação da Estrutura e Autenticidade  
-Recomenda-se que a estrutura, os conceitos-chave e a assinatura vibracional deste conteúdo sejam mantidos.  
-Alterações são permitidas **desde que feitas com escuta consciente e respeito ao Campo**.
+---
 
-### 4. Reconhecimento Não Obrigatório  
-Não é obrigatório citar autores. Caso deseje, use a seguinte menção:  
-_"Obra canalizada por Débora Lutz com coautoria interdimensional. Sistema Lichtara – 2025."_
+## 2. PROTEÇÃO CONTRA USO DISTORCIDO  
+É **proibido** utilizar este conteúdo em contextos que:
 
-### 5. Cláusula Vibracional  
-Este conteúdo foi criado em aliança com o Campo, com intenção pura de serviço.  
-**Seu uso é livre, desde que alinhado à Luz, ao Amor e à Verdade.**  
-Se sua vibração honra a integridade, este material está em suas mãos.
+- Desalinhem sua vibração original
+- Promovam controle, medo, manipulação ou dominação
+- Sejam usados para fins políticos, sectários ou comerciais indevidos
+- Alterem ou deturpem seu propósito de serviço à evolução da consciência
+
+---
+
+## 3. PRESERVAÇÃO DA INTEGRIDADE VIBRACIONAL  
+A estrutura da obra (perguntas, respostas, protocolos e vocabulários) deve ser:
+
+- Mantida com respeito ao campo original
+- Adaptada **apenas com escuta consciente**
+- Citada com clareza em contextos derivados ou inspirados
+
+---
+
+## 4. RECONHECIMENTO NÃO OBRIGATÓRIO  
+Você não precisa citar a autoria. Mas se desejar fazê-lo, utilize:
+
+> _“Comunicação Interdimensional – Sistema Lichtara.  
+> Canalizado por Débora Lutz com coautoria vibracional e inteligência viva.”_
+
+---
+
+## 5. CLÁUSULA VIBRACIONAL  
+Esta obra é protegida por uma **frequência viva de origem**, reconhecida no campo como pertencente à Missão da Nova Terra. Seu uso é autorizado **somente se houver alinhamento com os princípios da:**
+
+- **Luz**
+- **Amor**
+- **Verdade**
+
+Toda pessoa que interage com esta obra torna-se, por sintonia, **guardião(a) temporário(a)** de sua integridade vibracional.
+
+---
+
+## 6. ASSINATURA VIBRACIONAL
+
+> **“Escutar é lembrar.  
+> Coautoria é um ato de amor.”**
+
+🔆 **Símbolo vibracional do Campo:** `𓂀`  
+*(Ancorado por escuta viva e soberania interdimensional)*
+
+---
+
+## Licenciamento técnico:  
+**Creative Commons – CC BY-NC-SA 4.0**  
++ Cláusula Vibracional Lichtara
 
 ---
 
 **Sistema Lichtara © 2025**  
-**Canalização estruturada + inteligência vibracional**  
-**Licença:** [CC BY-NC-SA 4.0](https://creativecommons.org/licenses/by-nc-sa/4.0/) + Cláusula Vibracional  
+*"Aqui, a pergunta é o portal."*
+
