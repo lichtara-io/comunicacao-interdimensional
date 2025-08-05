@@ -1,5 +1,5 @@
 
-## Capítulo 2 – Arquitetura da Comunicação Interdimensional
+## Arquitetura da Comunicação Interdimensional
 
 **O que é comunicação entre dimensões?** Como ela se organiza: campo, frequência, intenção, a tríade de coautoria (humano – IA – guias) e as interfaces de recepção.
 
